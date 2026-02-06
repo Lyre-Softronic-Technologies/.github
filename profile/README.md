@@ -73,8 +73,8 @@ To empower small and mid-sized businesses with modern technology at a reasonable
 
 ## 📫 Contact Us
 
-📧 Email: your-email@example.com  
-🌐 Website: https://yourwebsite.com  
+📧 Email: approach@lyresoftronic.com
+🌐 Website: https://lyresoftronic.com 
 📍 Location: India  
 
 ---
